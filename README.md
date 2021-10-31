@@ -1,1 +1,1 @@
-# gatherings-offical
+# gatherings-campfire
